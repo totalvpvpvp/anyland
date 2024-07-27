@@ -16,7 +16,7 @@ VIP、King年套餐（特别优惠）：赠送45天有效时长。
 
 不限时流量套餐500G或以上：Tiktok/Instagram独享账号2选1赠送
 
-Mini年套餐（特别优惠）: ChatGPT/Tiktok/Instagram独享账号3选1赠送11
+Mini年套餐（特别优惠）: ChatGPT/Tiktok/Instagram独享账号3选1赠送111
 
 Basics年套餐（特别优惠）: ChatGPT/Tiktok/Instagram独享账号3选2 赠送
 
