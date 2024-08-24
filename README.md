@@ -22,7 +22,7 @@ Basics年套餐（特别优惠）: ChatGPT/Tiktok/Instagram独享账号3选2 赠
 
 ## 特色
 
-* 解锁Netflix、Disney+等流媒体
+* 解锁Netflix、Disney+等流媒体1
 * 支持【USDT-TRC20】支付
 * 全部线路支持安全加密协议
 
